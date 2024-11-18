@@ -1,7 +1,10 @@
 # blooketmods
 cheats for blooket!
 
-IF ANY MODS ARE NOT WORKING THEY WILL BE FIXED AS SOON AS I CAN.
+THIS HAS BEEN ARCHIVED AND NO LONGER WORK!!!!
 
-Use these mods to make blooket more easier.
-(and fun)
+FOR MORE BLOOKET HACKS GO TO MY NEW MOD MENU ON MY PROFILE
+
+# Bingus Blooket GUI
+
+NOW OUT ON MY PROFILE!
